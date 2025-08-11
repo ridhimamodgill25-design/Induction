@@ -26,6 +26,20 @@ DATE-2nd august,2025
   *Dr.Jaswinder Singh interacted with us on science experiments and taught us maths in a very exciting way,he showed us various experiments on wave propogation and effect of sounds.
 Then,the chief guest of that day S.Gurcharan Singh Grewal(Secretary,SGPC) awarded Dr.Jaswinder singh sir.
   *Dr.Priya Darshani-Universal Human Values talked about understanding ourselves and relationships.
+  ## Day-4
+                    #UNIVERSAL HUMAN VALUES:-
+  *The day began with an insightful expert lecture by Dr.Priya Darshani on universal Human Values in the auditorium,they guided us on conscious and value based life.We explored the concept of happiness and the 
+  state of contentment,discussing how these states of mind influence our everyday actions and decisions.
+  then,
+  Gautam Sir,who was one of our esteemed seniors,shared his journey in motorsports,inspiring young minds with passion and grit.
+  The Causmic Club team also showcased their vibrant initiatives,giving freshers a glimpse into creativity,leadership and innovation.Thos peer-to-peer sessions and interactive classes given by senior students and faculty ran in parallel,making it more encouraging.
+  ## Day-5 
+  DATE-7 august,2025
+  It was a lecture by Dr.Amit Kamra who is the incharge DMC gave us introduction to departmental operations and management.It was a brief discussion on acaademic expectations and protocols,then Dr,parminder Singh
+  (Dean-Student Welfare) gave insights on student welfare services,support systems,and available resources for academic and personal growth.
+  After that Dr.Randhir Singh gave us information on the topic"conduct of examination" told us about exam rules,code of conduct,evaluation system and guidelines to ensure academic integrity.
+  
+  
 
                      
                      
